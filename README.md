@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="200" src="https://tse2.mm.bing.net/th?id=OIP.r7rZceUnKI1atgLt3y0Y7gHaE7&pid=Api&P=0&h=180"  />
+  <img height="200" src="https://tse1.explicit.bing.net/th?id=OIP.GuxAfrjWWs5l5Qu_WSJhggHaEK&pid=Api&P=0&h=180"  />
 </div>
 
 ###
